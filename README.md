@@ -1,0 +1,7 @@
+- 👋 Hi, I’m *Henry*
+- 👀 I’m interested in *Games*
+- 🌱 I’m currently learning *How To Code*
+- 💞️ I’m looking to collaborate on *Mods/Hacks For School Apps*
+- 📫 How to reach me *786-299(7396)*
+- 😄 Pronouns: *He/Him*
+- ⚡ Fun fact: *My favorite movie is (The Mall cop 1 & 2*
